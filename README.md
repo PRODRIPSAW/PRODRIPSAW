@@ -34,6 +34,5 @@
 
 <br clear="both">
 
-<img src="https://thumbs.gfycat.com/SphericalLinedArachnid-max-1mb.gif" alt="Snake animation" />
 
 ###
